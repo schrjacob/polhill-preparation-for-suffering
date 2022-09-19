@@ -1,4 +1,4 @@
-#Chapter III
+# Chapter III
 
 *Preparation for sufferings considered more generally—A christian that wilt be prepared for sufferings must secure to himself three things; that is, a good cause, a good heart, and a good God.*
 
