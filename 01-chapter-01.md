@@ -1,3 +1,4 @@
+# Chapter 1
 Persecution will come on good men—This world is mixed of comforts and sorrows—The old enmity will persecute—Corruption in saints will show itself inwardly and outwardly—The church is heir to the cross—God orders sufferings for good—Things abroad and at home admonish us.
 
 One apostle tells us, That all that will live godly in Christ Jesus, shall suffer persecution. Another acquaints us, That this is no strange thing; a third, wishes us not; to marvel at the world’s hatred. It is true, the sufferings of good men have been an old stumbling-block. Pompey complained, that providence was very dark: the poet was ready to think that there were no gods: nay, the holy Psalmist cried out, I have cleansed my heart in vain, as if religion were to no purpose: yet, if we consider all, those sufferings are not to be wondered at.
